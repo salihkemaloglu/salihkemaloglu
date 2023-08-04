@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working at @Oivan
+- 🔭 I’m currently working at @RTX
 - 💬 Ask me anything. 
 - 📫 How to reach me: [Twitter](https://twitter.com/salihkemaloglu) or [LinkedIn](https://www.linkedin.com/in/salihkemaloglu/).
 
